@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on something. Not sure what yet.
 - 📫 How to reach me yolanisifuba22@gmail.com
 - 😄 Pronouns: that/girl
-- ⚡ Fun fact: I despise any squishy vegetable. W
+- ⚡ Fun fact: I despise any squishy vegetable. 
 
 <!---
 donebylani/donebylani is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
